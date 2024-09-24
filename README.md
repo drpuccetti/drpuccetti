@@ -26,7 +26,7 @@
   
 ### Timing:
 - **Sessions Offered**: 30m/60m/90m sessions; will almost certainly be over Zoom/Teams
-- **Frquency**: Flexible to your needs (weekly, biweekly, as needed etc.) 
+- **Frequency**: Flexible to your needs (weekly, biweekly, as needed etc.) 
   - Will mostly be scheduled weeknights and weekends (EST) but again, there is flexibility to meet your needs
 ### Cost:
 - **Pay-What-You-Can/Sliding Scale**: I aim to meet people where they are at. I totally get that cost can be really prohibitive and I am open to discussing and deciding together what will work for you. I really love teaching and mentoring and I do not want to put up more barriers to access than already exist. I do want to cover my time/effort on average across this whole endeavor though, so let's just talk! 
